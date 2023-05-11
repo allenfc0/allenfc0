@@ -1,2 +1,2 @@
 
-![naruto eats ramen](satoru.gif)
+![naruto eats ramen](luffy.gif)
