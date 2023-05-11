@@ -1,2 +1,2 @@
 
-![naruto eats ramen](itachi.gif)
+![naruto eats ramen](satoru.gif)
